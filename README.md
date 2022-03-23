@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KAVANTHEKING
+- 👀 I’m interested in listening to music and travelling.
+- 🌱 I’m currently doing a BBA in Logistics and Supply Chain Management at Symbiosis Skills and Professional University, Pune, India.
+- 💞️ I’m looking to collaborate on Logistics and Supply Chain Management knowledge. 
+- 📫 Reach me by mail kavan5678@gmail.com
